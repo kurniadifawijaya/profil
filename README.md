@@ -1,0 +1,2 @@
+# profil
+kurnia difa wijaya
